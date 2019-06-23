@@ -29,6 +29,7 @@ Ik ben bij elke weekly geek aanwezig geweest maar heb niet van alles sketsnodes.
 ##### weeklygeek DUO
 <details><summary></summary>
 <p>
+  
 ![weeklygeek](https://github.com/stijn-aa/weekly-nerd-1819/blob/master/image_from_ios_1024%20(2).jpg)
 
 </p>
@@ -37,6 +38,7 @@ Ik ben bij elke weekly geek aanwezig geweest maar heb niet van alles sketsnodes.
 ##### weeklygeek Daan
 <details><summary></summary>
 <p>
+  
 ![weeklygeek](https://github.com/stijn-aa/weekly-nerd-1819/blob/master/image_from_ios_1024.jpg)
 
 </p>
