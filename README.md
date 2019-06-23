@@ -24,4 +24,4 @@ Ik ben bij elke weekly geek aanwezig geweest maar heb niet van alles sketsnodes.
 ![weeklygeek](https://github.com/stijn-aa/weekly-nerd-1819/blob/master/image_from_ios_1024%20(2).jpg)
 
 ##### weeklygeek Daan
-![weeklygeek]()https://files.slack.com/files-tmb/TFSE8NABT-FKMP01TN1-f6667b040f/image_from_ios_1024.jpg
+![weeklygeek](https://github.com/stijn-aa/weekly-nerd-1819/blob/master/image_from_ios_1024.jpg)
