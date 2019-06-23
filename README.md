@@ -15,7 +15,7 @@ https://medium.com/@stijn.aa/weekly-mingels-f529c36b2c28?postPublishedType=initi
 
 #### Sketshnotes
 
-Ik ben bij elke weekly geek aanwezig geweest maar heb niet van alles sketsnodes. Ik kan ze gaan na tekenen van andere maar volgens mij wordt niemand daar blij van. Ik vind het een leuk concept en ik denk wel dat het voor sommige mensen werkt maar ik merkte bij mijzelf dat ik niet zo snel kan tekenen en luisteren tegelijk.
+Ik ben bij elke weekly geek aanwezig geweest maar heb niet van alles sketsnodes. Ik kan ze nu gaan na tekenen van andere maar volgens mij wordt niemand daar blij van. Ik vind het een leuk concept en ik denk wel dat het voor sommige mensen werkt maar ik merkte bij mijzelf dat ik niet zo snel kan tekenen en luisteren tegelijk.
 
 ##### sketsnoting
 <details><summary></summary>
