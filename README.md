@@ -18,7 +18,7 @@ https://medium.com/@stijn.aa/weekly-mingels-f529c36b2c28?postPublishedType=initi
 Ik ben bij elke weekly geek aanwezig geweest maar heb niet van alles sketsnodes. Ik kan ze gaan na tekenen van andere maar volgens mij wordt niemand daar blij van. Ik vind het een leuk concept en ik denk wel dat het voor sommige mensen werkt maar ik merkte bij mijzelf dat ik niet zo snel kan tekenen en luisteren tegelijk.
 
 ##### weeklygeek sketsnoting
-![weeklygeek](https://files.slack.com/files-tmb/TFSE8NABT-FKMP06CER-cd7ca6daca/image_from_ios_1024.jpg)
+![weeklygeek](https://github.com/stijn-aa/weekly-nerd-1819/blob/master/image_from_ios_1024%20(1).jpg)
 
 ##### weeklygeek DUO
 ![weeklygeek](https://files.slack.com/files-tmb/TFSE8NABT-FKMP0NE7P-c2abab32f0/image_from_ios_1024.jpg)
