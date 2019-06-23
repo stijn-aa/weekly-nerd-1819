@@ -14,3 +14,15 @@ https://medium.com/@stijn.aa/fantastic-voice-assistants-and-where-to-find-it-8c6
 https://medium.com/@stijn.aa/weekly-mingels-f529c36b2c28?postPublishedType=initial
 
 #### Sketshnotes
+
+Ik ben bij elke weekly geek aanwezig geweest maar heb niet van alles sketsnodes. Ik kan ze gaan na tekenen van andere maar volgens mij wordt niemand daar blij van. Ik vind het een leuk concept en ik denk wel dat het voor sommige mensen werkt maar ik merkte bij mijzelf dat ik niet zo snel kan tekenen en luisteren tegelijk.
+
+##### weeklygeek sketsnoting
+![weeklygeek](https://files.slack.com/files-tmb/TFSE8NABT-FKMP06CER-cd7ca6daca/image_from_ios_1024.jpg)
+
+##### weeklygeek DUO
+![weeklygeek](https://files.slack.com/files-tmb/TFSE8NABT-FKMP0NE7P-c2abab32f0/image_from_ios_1024.jpg)
+![weeklygeek](https://files.slack.com/files-tmb/TFSE8NABT-FKAALHFSN-0fa1d6decb/image_from_ios_1024.jpg)
+
+##### weeklygeek Daan
+![weeklygeek]()https://files.slack.com/files-tmb/TFSE8NABT-FKMP01TN1-f6667b040f/image_from_ios_1024.jpg
