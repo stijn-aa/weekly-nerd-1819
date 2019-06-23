@@ -3,6 +3,7 @@
 ### artiekelen
 
 https://medium.com/@stijn.aa/mijn-html-is-een-chaos-cde10bdc707a
+
 https://medium.com/@stijn.aa/mijn-css-is-een-chaos-a1b5c57a8909
 
 
